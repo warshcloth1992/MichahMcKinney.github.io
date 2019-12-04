@@ -1,1 +1,1 @@
-# MichahMcKinney.github.io
+# michahmckinney.github.io
